@@ -1422,6 +1422,8 @@ Not finding your country ? Check https://www.reddit.com/r/ukraine/comments/tbdst
 
 \+1 (212) 831-9162
 
+
+
 # VIETNAM
 
 **LAND LINES**
@@ -1431,3 +1433,34 @@ Not finding your country ? Check https://www.reddit.com/r/ukraine/comments/tbdst
 **FAX**
 
 \+84 (8) 930-3937
+
+
+
+# YEMEN
+
+**LAND LINES**
+
+\+967 (2)  232-792
+
+\+967 (2)  231-242
+
+\+967 (2)  231-050
+
+\+967 (1) 278-719
+
++967 (1) 270-051
+
+**FAX**
+
++967 (2) 232-036
+
++967 (2) 232-972
+
++967 (1) 283-142
+
+
+
+
+
+
+
