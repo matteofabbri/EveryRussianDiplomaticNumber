@@ -605,6 +605,8 @@ Not finding your country ? Check https://www.reddit.com/r/ukraine/comments/tbdst
 
 \+30 2310 25 72 02
 
+
+
 # GREENLAND
 
 **LAND LINES**
@@ -616,6 +618,17 @@ Not finding your country ? Check https://www.reddit.com/r/ukraine/comments/tbdst
 \+ 299 55 26 47
 
 \+45 21 56 56 42
+
+
+# GHANA 
+
+**LAND LINES**
+
++233 (21) 775-611
+
+**FAX**
+
++233 (21) 772-699
 
 
 
