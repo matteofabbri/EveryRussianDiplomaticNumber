@@ -168,6 +168,8 @@ Not finding your country ? Check https://www.reddit.com/r/ukraine/comments/tbdst
 
 **+32 2 375 39 18**
 
+**LAND LINES**
+
 \+32 (2) 374 5738
 
 \+32 (2) 374 6886
@@ -181,8 +183,6 @@ Not finding your country ? Check https://www.reddit.com/r/ukraine/comments/tbdst
 \+32 (0)3-829-16-11
 
 \+32 2 808 07 60
-
-**LAND LINES**
 
 \+32 (3) 829 0589
 
