@@ -151,6 +151,8 @@ Not finding your country ? Check https://www.reddit.com/r/ukraine/comments/tbdst
 
 \+880 (2) 882-3735
 
+
+
 # AZERBAIJAN 
 
 **LAND LINES**
@@ -236,7 +238,33 @@ Not finding your country ? Check https://www.reddit.com/r/ukraine/comments/tbdst
 \+55 (11) 3814-1246
 
 
+# BULGARIA
 
+\+359 (2) 963-1663
+
+\+359 (2) 963-0914
+
+\+359 (2) 963-0912
+
+\+359 (52) 602-719
+
++359 (52) 602-724
+
+\+359 (82) 822-292
+
++359 (82) 822-248
+
++359 (82)  822-249
+
+**FAX**
+
+\+359 (2) 963-4116
+
+\+359 (2) 963-4103
+
+\+359 (52) 602-722
+
+\+359 (82) 822-250
 
 
 
@@ -263,7 +291,17 @@ Not finding your country ? Check https://www.reddit.com/r/ukraine/comments/tbdst
 \+1 (514) 842-2012
 
 
+# COSTA RICA 
 
+**LAND LINES**
+
+\+506 256-9181
+
+\+506 221-1639
+
+**FAX**
+
+\+506 221-2054
 
 
 # CYPRUS
@@ -423,7 +461,8 @@ Not finding your country ? Check https://www.reddit.com/r/ukraine/comments/tbdst
 \+45 (3) 542 3741
 
 
-#ECUADOR
+
+# ECUADOR
 
 \+593 (2) 52-6361
 
@@ -453,6 +492,21 @@ Not finding your country ? Check https://www.reddit.com/r/ukraine/comments/tbdst
 \+20 (2) 760-9074
 
 
+# ESTONIA
+
+**LAND LINES**
+
+\+372 646-4166
+
+\+372 646-4175
+
+**FAX**
+
+\+372 646-4130
+
+\+372 646-4178
+
+
 
 # FAROE
 
@@ -476,6 +530,20 @@ Not finding your country ? Check https://www.reddit.com/r/ukraine/comments/tbdst
 **FAX**
 
 \+358-9-661-006
+
+
+# GEORGIA
+
+**LAND LINES**
+
+\+995 (32) 91-24-06
+
+\+995 (32) 91-26-45
+
+**FAX**
+
+\+995 (32) 91-27-38
+
 
 
 # GERMANY
@@ -1459,8 +1527,15 @@ Not finding your country ? Check https://www.reddit.com/r/ukraine/comments/tbdst
 +967 (1) 283-142
 
 
+# ZAMBIA
 
+**LAND LINES**
 
+\+260 (1) 252120
+
+**FAX**
+
+\+260 (1) 253582
 
 
 
